@@ -1,1 +1,0 @@
-# 675gallery-kalaye-bargh-afrooz-1235
